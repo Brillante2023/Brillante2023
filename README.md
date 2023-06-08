@@ -1,5 +1,10 @@
 - 👋 Hi, I’m @Brillante2023
-- 👀 I’m interested in .student at Sayna..
+- 👀 I’m interested in moovies and network.
+
+
+
+
+
 - 🌱 I’m currently learning ..manager.
 - 💞️ I’m looking to collaborate on ...digital marketing 
 - 📫 How to reach me ..0330583261.
